@@ -1,3 +1,3 @@
 Bonjour a tous 
 
-Voici un cheat pour minecraft s'appellan Dprive
+Voici un cheat pour minecraft qui s'appelle Dprive
